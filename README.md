@@ -1,1 +1,1 @@
-# lab2
+http://martynovlav.zzz.com.ua/lab2/
